@@ -50,3 +50,5 @@
 [Ссылка на лучшие композиции на YouTube](https://www.youtube.com/playlist?list=PLP22ZQvwAuvBGmUFAK7t49xKRL7UiY0Sq)
 
 [А вот его Инстаграмм](https://www.instagram.com/davidgarrettinsta/)
+
+![](http://cdn.fishki.net/upload/post/201604/05/1908846/2-001.jpg)
